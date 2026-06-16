@@ -165,9 +165,37 @@ Skills:
 
 [linkdin certificate.pdf](https://github.com/user-attachments/files/29008855/linkdin.certificate.pdf)
 
-Add your certificates here with screenshots or PDFs.
+[AI-Powered Shopping ads Certification • Ramseena Np • Skillshop.html](https://github.com/user-attachments/files/29008981/AI-Powered.Shopping.ads.Certification.Ramseena.Np.Skillshop.html)
 
----
+[Google Ads Apps Certification • Ramseena Np • Skillshop.html](https://github.com/user-attachments/files/29008990/Google.Ads.Apps.Certification.Ramseena.Np.Skillshop.html)
+
+[Google Ads Video Certification • Ramseena Np • Skillshop.html](https://github.com/user-attachments/files/29008997/Google.Ads.Video.Certification.Ramseena.Np.Skillshop.html)
+
+[Digital Advertising _ HubSpot Academy.html](https://github.com/user-attachments/files/29009003/Digital.Advertising._.HubSpot.Academy.html)
+
+
+[Google Ads Display Certification • Ramseena Np • Skillshop.html](https://github.com/user-attachments/files/29009008/Google.Ads.Display.Certification.Ramseena.Np.Skillshop.html)
+
+[Google Analytics Certification • Ramseena Np • Skillshop.html](https://github.com/user-attachments/files/29009024/Google.Analytics.Certification.Ramseena.Np.Skillshop.html)
+
+[Brand Analysis of Social Media Marketing.pdf](https://github.com/user-attachments/files/29009083/Brand.Analysis.of.Social.Media.Marketing.pdf)
+
+[ramseena-naduvile-purayil semrush local seo certificae.pdf](https://github.com/user-attachments/files/29009069/ramseena-naduvile-purayil.semrush.local.seo.certificae.pdf)
+
+[ramseena-naduvile-purayil_SEO crash course.pdf](https://github.com/user-attachments/files/29009058/ramseena-naduvile-purayil_SEO.crash.course.pdf)
+
+<img width="1140" height="880" alt="hubspot content marketing cert" src="https://github.com/user-attachments/assets/83eb8b0c-809f-4428-bacc-ec4127f93ea2" />
+
+<img width="1140" height="880" alt="SEO hubspot" src="https://github.com/user-attachments/assets/ba245882-d33a-402d-9431-7000dafb78c9" />
+[Ramseena NP (3).pdf](https://github.com/user-attachments/files/29010512/Ramseena.NP.3.pdf)
+[Ramseena NP (3).pdf](https://github.com/user-attachments/files/29010508/Ramseena.NP.3.pdf)
+
+<img width="1140" height="880" alt="social media hubspot" src="https://github.com/user-attachments/assets/6846251f-5f7d-4939-8671-ad626d0a92ba" />
+
+<img width="1140" height="880" alt="hubspot dig mark  cert" src="https://github.com/user-attachments/assets/206124b1-5ec2-4834-9f49-e91f018bf1d9" />
+
+<img width="1140" height="880" alt="email marketing" src="https://github.com/user-attachments/assets/1bc1064c-ae08-4f62-941c-b6339fbd5434" />
+
 
 ## 📄 Resume
 
@@ -183,5 +211,5 @@ Store: https://www.anoruajewels.shop
 
 Instagram: @anoruajewels
 
-LinkedIn: Add your LinkedIn URL
+LinkedIn:(https://www.linkedin.com/in/ramseenanp/)
 
